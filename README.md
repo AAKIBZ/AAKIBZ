@@ -17,7 +17,7 @@
 
 - 📫 How to reach me email: aakibjabbar@gmail.com
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Xv0aCD_u3tIehoOzvEq3b7_v-jHy_ymW/view?usp=sharing](https://drive.google.com/file/d/1Xv0aCD_u3tIehoOzvEq3b7_v-jHy_ymW/view?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1iwz3tQJbQ5w_7pOcrEl16pRwEZbOX0MqYH_aq343eUg/edit?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
